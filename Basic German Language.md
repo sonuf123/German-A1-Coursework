@@ -1,4 +1,4 @@
-To help you become an expert in A1 German and clear the certification, we'll cover essential topics such as basic introductions, asking for directions, and everyday phrases. Here's how we'll approach it:
+## A1 German Course
 
 ### 1. **Basic Introductions**
    - **Greetings:**
